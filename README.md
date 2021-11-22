@@ -88,8 +88,9 @@ https://getwinkies.com/fr/ réseau éducation pour les enfants - metaverse
 https://www.artcandie.com/ un réseaux social pour les artistes NFTs
 https://pianity.com/market un reseaux social pour musiciens (ils m'en ont donné quelque uns)
 
-Alors comment on achète ces crypto ? 
+Alors comment on achète ces crypto ? virement sepa ou CB
 J'achète soit sur binance, soit sur FTX. binance est la star, mais n'a pas encore tous les agréments et validation, mais c'est ok. je préfère FTX. 
+pour retirer virement. aprés avoir tout transformer en euros.
 
 Binance : https://accounts.binance.com/fr/register?ref=91796799
 
