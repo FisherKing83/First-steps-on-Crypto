@@ -36,6 +36,7 @@ Mes cryptos du moment:
 BITCOIN et ETHEREUM, une obligation, j'ai tout mis sur NEXO 
 Il faut savoir que chaque crypto ce stock souvent sur son propre portefeuille (protéger qui vous appartient etc)  je préfère avoir un portefeuille qui va avec chaque crypto ou presque. 
 
+! En cours de reflexion pour revendre 
 ELGD Elrond https://elrond.com/ 
 le portefeuille https://get.maiar.com/referral/c0svcevlry (sur téléphone uniquement)
 s'achète directement dans l'appli
